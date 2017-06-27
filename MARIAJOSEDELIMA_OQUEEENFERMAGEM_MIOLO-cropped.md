@@ -1,10 +1,3 @@
-> ![](media/image1.png)coleção primeiros
->
-> ![](media/image6.png){width="8.115266841644794e-2in"
-> height="8.803696412948381e-2in"}passos
->
-> **BRANCA**
->
 > Maria José de Lima
 >
 > **o que é enfermagem**
